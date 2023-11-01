@@ -1,1 +1,3 @@
 # Nocturne
+dope
+LFG！
